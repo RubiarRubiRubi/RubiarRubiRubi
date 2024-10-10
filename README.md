@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @RubiarRubiRubi
-- 👀 I’m interested in ... 
-- 🌱 I’m currently learning ...
+- 👀 I’m interested in ... me especializar na ramo da programação
+- 🌱 I’m currently learning ... Cursos profissionais na alura
 - 💞️ I’m looking to collaborate on ... Projetos de programação
 - 📫 How to reach me ... 00001113331355sp@al.educacao.sp.gov.br
 - 😄 Pronouns: ... ELE/ELA
